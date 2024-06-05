@@ -1,3 +1,3 @@
 # Gabriela-Alura-
 
-oi, eu sou cagona
+oi, eu sou uma aluna do alura
